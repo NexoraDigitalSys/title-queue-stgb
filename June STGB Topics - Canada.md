@@ -1,0 +1,8 @@
+Nexora Digital Systems Study Guide Topics
+
+| S/N | Title | Subtitle | Pen Name | Category Listing | Pricing |
+| :---- | :---- | :---- | :---- | :---- | :---- |
+|  | Ontario 310T Truck and Coach Technician Exam Prep 2026 | Comprehensive Guide with 1,000 Practice Questions, Diesel Engines, Air Brakes, Electrical Diagnostics, Drivetrains, and Detailed Answer Explanations | Declan Harrington | Books \> Professional & Technical \> Engineering \> Automotive \> Vehicle Design & Construction  Books \> Education & Reference \> Test Preparation \> Graduate & Professional \> Professional  Books \> Textbooks | Kindle –  $35.20 Paperback \- $45.20 Hardcover \- $55.20 |
+|  | Red Seal Machinist Certification Test Prep 2026 | 1,000 Practice  Questions, Machine Setup, Blueprint Interpretation, Metrology, Trade Math, and 5 Full-Length Mock Exams | Bennet Reynolds | Books \> Education & Reference \> Test Preparation \> Careers \> Civil Service  Books \> Education & Reference \> Test Preparation \> Careers \> Vocational Tests Books \> Education & Reference \> Studying & Workbooks \> Study Guides | Kindle –  $62.20 Paperback \- $72.20 Hardcover \- $82.20 |
+|  | Red Seal Machinist Exam Guide 2026 | Practical Certification Review with 1,100+ Questions Covering G-Code, Machine Setup, Lathe Operations, Milling Processes, and Grinding | Bennett Reynolds | Books \> Education & Reference \> Test Preparation \> Careers \> Civil Service  Books \> Education & Reference \> Test Preparation \> Careers \> Vocational Tests Books \> Education & Reference \> Studying & Workbooks \> Study Guides | Kindle –  $55.89 Paperback \- $65.89 Hardcover \- $75.89 |
+
